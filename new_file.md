@@ -1,0 +1,1 @@
+rediģēju šo failu vēlreiz
